@@ -12,7 +12,7 @@ I’m female and I go by she/her hehee
 
 MY INTERESTS??????????????????????
 
-I really like Yume Nikki and it’s fangames, Pop’n Music, PokéMon, VOCALOID, UTAU, Deltarune, Undertale, Kirby, Sonic the Hedgehog, 
+I really like Yume Nikki and it’s fangames, Pop’n Music, PokéMon, VOCALOID, UTAU, Deltarune, Undertale, Kirby, Sonic the Hedgehog, and some more ETC.  
 
 
 
