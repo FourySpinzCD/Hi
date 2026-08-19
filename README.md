@@ -23,8 +23,13 @@ I really like Yume Nikki and it’s fangames, Pop’n Music, PokéMon, VOCALOID,
 
 
 Check out my AtaBook or something i guess
+
 okay thats all idk what to put here next
 
 
 
+
+
+
 Also rhat image i put at the top or something was made by PyoHato 
+
