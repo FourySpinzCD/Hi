@@ -24,7 +24,7 @@ I really like Yume Nikki and it’s fangames, Pop’n Music, PokéMon, VOCALOID,
 
 Check out my AtaBook or something i guess
 
-<img width="328" height="313" alt="IMG_4963" src="https://github.com/user-attachments/assets/fee336f5-b639-4612-aefb-f3ff1a20aeb1" />
+<img width="318" height="303" alt="IMG_4963" src="https://github.com/user-attachments/assets/fee336f5-b639-4612-aefb-f3ff1a20aeb1" />
 
 okay thats all idk what to put here next
 
